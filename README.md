@@ -1,1 +1,0 @@
-Mirket Software
